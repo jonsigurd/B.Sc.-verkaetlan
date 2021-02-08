@@ -1,1 +1,1 @@
-# B.Sc.-verkaetlan
+# B.Sc. verkaetlan
